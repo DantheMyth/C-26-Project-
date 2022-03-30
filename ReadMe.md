@@ -1,0 +1,1 @@
+This banana bread has been the most popular recipe on Simply Recipes for over 10 years. Thousands of people make it every day. 
